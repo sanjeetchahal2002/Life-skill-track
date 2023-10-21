@@ -31,24 +31,32 @@ To sleep better, consider implementing these ideas:
 
 ### Paraphrase the video - Brain Changing Benefits of Exercise. Minimum 5 points, only the points.
 
-- Summarizing the video "Brain Changing Benefits of Exercise," it emphasizes how physical activity positively impacts the brain's structure and function.
-- The video highlights that exercise boosts the production of growth factors, contributing to brain cell growth and improved cognitive abilities.
-- It suggests that regular exercise can enhance memory and learning capabilities, leading to sharper cognitive skills.
-- The video emphasizes the role of exercise in reducing the risk of neurodegenerative diseases and mental health conditions, such as depression and anxiety.
-- It underscores the importance of incorporating physical activity into one's routine for long-term brain health and overall well-being.
+In the video "Brain Changing Benefits of Exercise," the focus is on how physical activity significantly enhances brain structure and function. Exercise plays a crucial role in promoting brain health through the increased production of growth factors, facilitating the growth of brain cells and improving cognitive abilities.
 
-  ### What are some steps you can take to exercise more?
+Furthermore, the video underscores the remarkable benefits of regular exercise in bolstering memory and learning capabilities, which translates to sharper cognitive skills. It also emphasizes the protective role of exercise in reducing the risk of neurodegenerative diseases and mental health conditions, such as depression and anxiety.
 
-  To exercise more, I will prefer taking these steps:
-- **Set Clear Goals:** Define my fitness objectives, whether it's weight loss, muscle gain, or improved endurance.
-- **Create a Schedule:** Plan specific workout times and stick to them as I would with any other appointment.
-- **Start Slow:** If I am new to exercise,  i will begin with manageable routines and gradually increase intensity.
-- **Find Activities You Enjoy:** Engage in physical activities , such as dancing, hiking, or sports.
-- **Partner Up:** Exercise with a friend or join a fitness class to stay motivated and accountable.
-- **Use Technology:** Utilize fitness apps or wearables to track progress and receive guidance.
-- **Make It a Habit:** Consistency is key, so strive to make exercise a part of my daily routine.
-- **Mix It Up:** Vary workouts to prevent boredom and target different muscle groups.
+In essence, the video highlights the vital importance of incorporating physical activity into one's daily routine as a long-term strategy for maintaining optimal brain health and overall well-being.
+
+### What are some steps you can take to exercise more?
+
+To exercise more effectively, follow these steps:
+
+- **Set Clear Goals:** Define your fitness objectives, such as weight loss, muscle gain, or improved endurance.
+
+- **Create a Schedule:** Plan specific workout times and stick to them as you would with any other appointment.
+
+- **Start Slow:** If you're new to exercise, begin with manageable routines and gradually increase intensity.
+
+- **Find Activities You Enjoy:** Engage in physical activities you like, such as dancing, hiking, or sports.
+
+- **Partner Up:** Exercise with a friend or join a fitness class for motivation and accountability.
+
+- **Use Technology:** Utilize fitness apps or wearables to track progress and get guidance.
+
+- **Make It a Habit:** Consistency is crucial, so make exercise part of your daily routine.
+
+- **Mix It Up:** Vary your workouts to prevent boredom and target different muscle groups.
+
 - **Stay Hydrated and Eat Well:** Proper nutrition and hydration are essential for sustaining energy during workouts.
-- **Listen to Your Body:** Pay attention to  body's signals, and don't overexert ; rest when needed.
 
-
+- **Listen to Your Body:** Pay attention to your body's signals and avoid overexertion; rest when needed.
